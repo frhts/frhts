@@ -3,6 +3,6 @@
 - 📚 I am currently learning all about data, digital process, self-development, and skills to ensure that I can be a good professional in work setting
 - 💡 I am interested in learning new things, creating actionable insights, understanding the needs of society, and most of all  being relevant
 - 🤝 I am looking to collaborate on anything that involves establishment or improvement of a system utilized by many
-- 🔗 Let's follow each other back! I am also active on goodreads (goodreads.com/frhts)
+- 🔗 Let's follow each other back! I am also active on linkeding (https://www.linkedin.com/in/farahfitriasari/) and goodreads (https://www.goodreads.com/frhts)
 
 Should you have any inquiries regarding exciting projects that need additional manpower with skills in data analytics, project management, statistics, lean six sigma, or manufacturing quality engineering, feel free to reach me out at farahfitriasari@gmail.com 😊
